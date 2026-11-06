@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi I'm Jada!! 
 
 <!--
 **jgum-w22/jgum-w22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
